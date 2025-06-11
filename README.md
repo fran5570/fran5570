@@ -29,7 +29,7 @@ Let’s connect
 I’m open to collaborate, learn, and share experiences.  
 You can reach me at:
 
-- fran5570.dev@gmail.com  
+- franciscoperez615570@gmail.com 
 - [GitHub](https://github.com/fran5570)  
 - [LinkedIn](linkedin.com/in/francisco-pérez-6506a8349)
   
