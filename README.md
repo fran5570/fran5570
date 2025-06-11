@@ -31,7 +31,7 @@ You can reach me at:
 
 - franciscoperez615570@gmail.com 
 - [GitHub](https://github.com/fran5570)  
-- [LinkedIn](linkedin.com/in/francisco-pérez-6506a8349)
+- [LinkedIn](https://linkedin.com/in/francisco-pérez-6506a8349)
   
 > *It’s not just about writing code — it’s about building things that truly work and make a difference.*
 
